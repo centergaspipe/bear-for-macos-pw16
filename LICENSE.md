@@ -1,4 +1,4 @@
-
+Get the ultimate Bear for macOS macro with best Bear for macOS Macro | AI assistant + custom shortcuts. Featuring AI assistant and custom shortcuts, it's the best choice for macOS
 
 
 
